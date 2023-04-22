@@ -1,0 +1,1 @@
+A noter que le compte rendu intitulé "présentation Polytech Paris Saclay" a été rédigé avant que la voiture ne soit fonctionnelle, et constitue une bonne introduction pour toute équipe qui souhaiterait intégrer la course, sans avoir de feedback des années précédentes
